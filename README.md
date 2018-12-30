@@ -1,3 +1,0 @@
-# -rnek
-# -rnek
-# -rnek
